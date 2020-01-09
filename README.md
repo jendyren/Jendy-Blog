@@ -1,1 +1,0 @@
-# Jendy-Blog
